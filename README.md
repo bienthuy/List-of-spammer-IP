@@ -10,7 +10,7 @@ Find us on Facebook: https://www.facebook.com/bienthuywebsite  <br>
 
 Find us on Twitter: https://twitter.com/bienthuywebsite  <br>
 
-Find us on Google Plus: http://google.com/+bienthuywebsite  <br>
+Find us on Google Plus: http://plus.google.com/+bienthuywebsite  <br>
 
 Find us on Pinterest: https://www.pinterest.com/bienthuywebsite  <br>
 
