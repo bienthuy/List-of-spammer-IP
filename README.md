@@ -7,11 +7,6 @@ Follow us to update latest list:  <br>
 https://bienthuy.com/kien-thuc/bao-mat-internet/danh-sach-ip-chuyen-di-spam-ip-blacklist/ <br> 
 
 Find us on Facebook: https://www.facebook.com/bienthuywebsite  <br>
-
 Find us on Twitter: https://twitter.com/bienthuywebsite  <br>
-
-Find us on Google Plus: http://plus.google.com/+bienthuywebsite  <br>
-
 Find us on Pinterest: https://www.pinterest.com/bienthuywebsite  <br>
-
 Find us on Youtube: https://www.youtube.com/bienthuywebsite  <br>
